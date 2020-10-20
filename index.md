@@ -28,4 +28,4 @@
 
 В поезде железные рукава обокрали и высадили его.
 
-
+![poezd](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQTZ1wDTeemukPQQQm80-YdPzaNdB2P0T7eWw&usqp=CAU "poezd")
